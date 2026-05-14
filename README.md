@@ -68,4 +68,10 @@
 ### Week 5 — [Evaluation]
 - Analyze results
 - Optimize strategy 
-- Final presentation  
+- Final presentation
+
+- =Project links
+- https://www.facebook.com/vanillawrihan?locale=ar_AR
+- https://www.instagram.com/vanilla_w_rihan?fbclid=IwY2xjawRzASZleHRuA2FlbQIxMABicmlkETF4RjNWZjhkZmVuRFlQeTdSc3J0YwZhcHBfaWQQMjIyMDM5MTc4ODIwMDg5MgABHl-jKZN5z8GWkD9KQMLOxoNe_Fpagw9CaO-1I5QG2DnlF_U4qEpOznbfCR4U_aem_WYHx5LOBV7MJ9Ov1EuwCnw
+- https://www.tiktok.com/@vanilla.rihan
+- https://business.facebook.com/latest/?asset_id=243649622160828&nav_ref=manage_page_ap_plus_left_nav_mbs_button
